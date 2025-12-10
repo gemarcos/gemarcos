@@ -1,1 +1,4 @@
-Estudiante de ingeniería robótica. Miembro de la sociación de Robotech. :)
+Estudiante de ingeniería robótica. Miembro de la sociación de Robotech. :) 💥💥💥💥💥💥💥💥💥💥💥💥 🚗💥💥 🔥🔥🔥👨‍🦲
+
+
+💥💥
